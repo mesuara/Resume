@@ -12,5 +12,9 @@ Vegeta The Fourth
  2. Bulla Briefs
 
 ArchRival Son Goku
+
+My favorite Fanfiction page
+
+(https://www.mediaminer.org/fanfic/a/dragon-ball-z-gt/104)
    
 
